@@ -1,1 +1,0 @@
-Mussum Ipsum, cacilds vidis litro abertis. Si u mundo tá muito paradis? Toma um mé que o mundo vai girarzis!Sapien in monti palavris qui num significa nadis i pareci latim.Em pé sem cair, deitado sem dormir, sentado sem cochilar e fazendo pose.Atirei o pau no gatis, per gatis num morreus.
